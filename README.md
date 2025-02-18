@@ -1,1 +1,1 @@
-copy and paste this link and follow instructions. grammarly.com 
+just click on the thing that says ixl solver and follow steps.
